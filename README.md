@@ -6,3 +6,4 @@ but fist sem notes are not correct and cocise ,,,if you have the consise notes(a
 that going to be used for thousand of students!!!!!!!
 
 (self help is the best help!!!!!!!)
+if you want ethics notes mail me(vinslinpackia@gmail.com)
